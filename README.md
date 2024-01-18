@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @falayege
+- 👀 I’m interested in finance (modelisation), AI and mathematics.
